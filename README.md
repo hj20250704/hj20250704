@@ -1,16 +1,32 @@
-## Hi there 👋
+万篇长征 - 黑料不打烊导航SO-0704-yuying|881比鸭
 
-<!--
-**hj20250704/hj20250704** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+点击访问：<a href="https://74mao.com/">74猫导航主站</a>
 
-Here are some ideas to get you started:
+点击访问：<a href="https://74mao.com/">Telegram频道传送门</a>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+点击访问：<a href="https://heiliaolvzlu3.pages.dev">黑料·黑料网</a>
+
+点击访问：<a href="https://heiliaoyvnrda.pages.dev">黑料网独家爆料</a>
+
+点击访问：<a href="https://haef.pages.dev/">黑料网</a>
+
+点击访问：<a href="https://gdas.pages.dev/">海角官方</a>
+
+点击访问：<a href="https://sdfsh.pages.dev/">黑料网精彩影视</a>
+
+点击访问：<a href="https://sdbsd.pages.dev/">海角官方网页版入口</a>
+
+点击访问：<a href="https://ert-6he.pages.dev/">海角网</a>
+
+点击访问：<a href="https://gbs-3wd.pages.dev/">黑料</a>
+
+日本AV免费在线看：最新高清资源全网汇总
+想免费看日本AV？这里为你汇聚了全网最新、最全、免费高清的日本成人视频资源，让你随时随地享受顶级的观影体验。无论是最新发行的热门影片，还是经典女优的代表作，都能在这里轻松找到，完全免费，无需注册，无广告骚扰。
+
+我们的网站专注于日本AV免费资源的收集与整理，提供多种播放方式支持手机、电脑、平板，满足不同设备用户的需求。所有视频均为高清画质，支持在线播放和高速下载，确保流畅不卡顿，带来极致视觉享受。
+
+为了方便用户快速查找喜欢的影片，我们将资源按照女优、类型、年份进行了细致分类。无论你是喜欢温柔风还是激情派，都能轻松找到合适内容。同时，我们每日更新最新作品，第一时间带来日本成人影视界的热点佳作，保证资源不断档。
+
+除了海量视频资源外，我们还提供详细的影片介绍和女优资料，帮助你更好了解内容背景和演出风格。页面设计简洁，操作流畅，支持移动端全兼容，随时随地畅享免费日本AV。
+
+我们承诺提供安全、无广告的观影环境，所有资源均合法合规。访问本站，立即开启你的免费日本AV高清之旅，享受视觉盛宴，体验极致快感。
